@@ -1,1 +1,1 @@
-My name is Elena Manole and today is Thursday, 8 April, 22:41 CEST.
+My name is Elena Manole and today is Thursday, 8 April, CEST.
