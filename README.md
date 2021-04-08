@@ -1,1 +1,1 @@
-My name is Elena-BBC and today is Sunday, 21 February, 13:10 CET.
+My name is Elena Manole and today is Thursday, 8 April, 22:41 CEST.
